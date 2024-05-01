@@ -4,7 +4,7 @@
 
 
 Exploring different fields in IT.
-Creating Breaking and Learning is my talent 🛠
+Creating, Breaking and Learning is my talent 🛠
 
 
 - 🔭 I’m currently breaking something >_<
